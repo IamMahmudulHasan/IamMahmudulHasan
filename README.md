@@ -1,4 +1,4 @@
-![Professional Digital Marketer, SEO & Ads Expert.](https://media.licdn.com/dms/image/C5616AQFVffuLl4jJLQ/profile-displaybackgroundimage-shrink_350_1400/0/1662511516078?e=1677110400&v=beta&t=HPufxm-abV3ukqOUoJHbQwWfsmCVNwUo6q5PE3qZK_s)
+![Vlogger/App & Web Developer.](https://media.licdn.com/dms/image/C5616AQFVffuLl4jJLQ/profile-displaybackgroundimage-shrink_350_1400/0/1662511516078?e=1677110400&v=beta&t=HPufxm-abV3ukqOUoJHbQwWfsmCVNwUo6q5PE3qZK_s)
 
 ### Hi there 👋, This is Mahmudul Hasan
 #### Vlogger/App & Web Developer.
